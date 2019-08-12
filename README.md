@@ -111,6 +111,8 @@ BIS科学上网：[https://t.me/BISproject](https://link.jianshu.com/?t=https%3A
 
 流星蔬菜：[https://t.me/ourwell](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Fourwell)
 
+革命者：[https://t.me/joinchat/HsUwp0zS_Rmgi63bErQEjA](https://t.me/joinchat/HsUwp0zS_Rmgi63bErQEjA)
+
 ## 免费SS站
 
 CCCAT User Club：Club：[https://t.me/cccat_co](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Fcccat_co)
