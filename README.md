@@ -558,6 +558,8 @@ LWL 的通信录：[https://t.me/joinchat/AAAAAD65RI4J8YRfwPbq3g](https://link.j
 
 電報食堂：電報食堂：[https://t.me/zheatChannel](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2FzheatChannel)（频道）
 
+言论自由委员会：https://t.me/free_speech_discussion
+
 ## Telegram
 
 Durov's Channel（Telegram 创始人兼CEO 的频道）：的频道）：[https://t.me/durov](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Fdurov)
