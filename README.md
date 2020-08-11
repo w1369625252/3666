@@ -634,6 +634,8 @@ shadowsocks公益组织：[https://t.me/ssfree](https://link.jianshu.com/?t=http
 
 91yun优惠快讯：[https://t.me/express91yun](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Fexpress91yun)
 
+光年VPN ：[https://t.me/lightyearvpn](https://t.me/lightyearvpn)
+
 ## 软件
 
 Evernote 非官方渠道：[https://telegram.me/evernoter](https://link.jianshu.com/?t=https%3A%2F%2Ftelegram.me%2Fevernoter)
