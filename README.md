@@ -328,6 +328,8 @@ Beijing GNU/Linux User Group：[https://t.me/beijinglug](https://link.jianshu.co
 
 前端技术交流群[CN]：[https://t.me/cn_fee](https://t.me/cn_fee)
 
+我比你强问答社区 [https://t.me/wobiniqiang](https://t.me/wobiniqiang)
+
 ## 小米 GTeam
 
 Xiaomi Mi Mix：[https://telegram.me/joinchat/B2e6DUAjvMyPRSel0M6X_A](https://link.jianshu.com/?t=https%3A%2F%2Ftelegram.me%2Fjoinchat%2FB2e6DUAjvMyPRSel0M6X_A)
