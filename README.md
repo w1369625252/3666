@@ -726,6 +726,8 @@ CryptoCN-加密货币中文交流：[https://t.me/CryptoCN](https://t.me/CryptoC
  
 BTCtrade：[https://t.me/btctradecom](https://t.me/btctradecom)
 
+区块链项目交流群：[https://t.me/Blockchain_Miners](https://t.me/Blockchain_Miners)
+
 ## 其他
 
 XXXXXXX：[https://t.me/xxxxxxx](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Fxxxxxxx)
