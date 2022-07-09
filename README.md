@@ -2501,7 +2501,7 @@
 *   [Telegram Bot List](https://github.com/eternnoir/pyTelegramBotAPI#bots-using-this-api)
 *   [Telegram Bot Store](https://storebot.me/)
 *   [Telegram Bots](https://blog.rawstack.co/post/telegram-bots)
-
+*   [DouYintg_bot](https://t.me/DouYintg_bot) 同时支持抖音和tiktok视频、图集去水印
 （排名不分先后）
 
 ##### Telegram 相关链接[](https://congcong0806.github.io/2018/04/24/Telegram/#telegram-%E7%9B%B8%E5%85%B3%E9%93%BE%E6%8E%A5)
